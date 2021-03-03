@@ -2,3 +2,4 @@
 - [Week 2 recording](https://pace.hosted.panopto.com/Panopto/Pages/Viewer.aspx?id=c2dfbaef-e9a9-4d16-a537-acc40083e5f3)
 - [Week 3 recording](https://pace.hosted.panopto.com/Panopto/Pages/Viewer.aspx?id=dad6c40d-a35b-4e71-b625-accb003b9962)
 - [Week 4 recording](https://pace.hosted.panopto.com/Panopto/Pages/Viewer.aspx?id=3e31812d-313a-452c-8944-acd20049c24b)
+- [Week 6 recording](https://pace.hosted.panopto.com/Panopto/Pages/Viewer.aspx?id=210729e9-d58c-4599-9fe6-acdf015cedab)
