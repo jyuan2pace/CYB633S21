@@ -5,3 +5,4 @@
 - [Week 6 recording](https://pace.hosted.panopto.com/Panopto/Pages/Viewer.aspx?id=a0afc150-7e89-48b6-9564-ace00067e108)
 - [Week 7 recording](https://pace.hosted.panopto.com/Panopto/Pages/Viewer.aspx?id=41b7b2a0-2d1a-4a50-a476-ace700386116)
 - [Week 8 recording](https://pace.hosted.panopto.com/Panopto/Pages/Viewer.aspx?id=5bb08b1e-b59c-46ee-b2b9-acee002e0fbc)
+- [Week 9 recording](https://pace.hosted.panopto.com/Panopto/Pages/Viewer.aspx?id=e41d42f0-e9d1-4aad-aefc-acf5001d06ab)
