@@ -8,3 +8,5 @@
 - [Week 9 recording](https://pace.hosted.panopto.com/Panopto/Pages/Viewer.aspx?id=e41d42f0-e9d1-4aad-aefc-acf5001d06ab)
 - [Week 10 recording](https://pace.hosted.panopto.com/Panopto/Pages/Viewer.aspx?id=373eebfe-f1c7-4024-b605-acfc00343c47)
 - [Week 11 recording](https://pace.hosted.panopto.com/Panopto/Pages/Viewer.aspx?id=5e4ce7b4-ea84-40ef-b3e0-ad030020dd67)
+- [Week 12 recording](https://pace.hosted.panopto.com/Panopto/Pages/Viewer.aspx?id=3df9fee1-88ee-4c9d-bde1-ad0a0036a306)
+- [Week 13 recording](https://pace.hosted.panopto.com/Panopto/Pages/Viewer.aspx?id=8346371e-8738-4782-9abc-ad1100344522)
